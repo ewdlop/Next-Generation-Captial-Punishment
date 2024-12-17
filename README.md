@@ -1,7 +1,7 @@
 # Next-Generation-Captial-Punishment
 studry-memory
 
-- Send the criminal into the space and pray the rock flies
+- Send the criminal into the space and pray the rock(et) flies
 
 - Trap you in VR
 
