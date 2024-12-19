@@ -11,6 +11,8 @@ DM fuel for the rocket or highly unpredictable rocket explosion
 
 -
 
-- feed you to wild aniamls like wolfs
+- feed you to wild animals like wolfs
 
-- create a person with same idenity and replace the crimnal
+- create a person with same identity and replace the criminal
+
+- human centipede
