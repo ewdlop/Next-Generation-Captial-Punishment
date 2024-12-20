@@ -16,3 +16,5 @@ DM fuel for the rocket or highly unpredictable rocket explosion
 - create a person with same identity and replace the criminal
 
 - human centipede
+
+- WWE Cage fight for last survivor. Needle bats.
