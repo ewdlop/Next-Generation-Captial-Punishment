@@ -9,5 +9,6 @@ theyu said being AMerican was the wores thing ever.
 
 they said people cannot be this ungreatful
 
+they said they are 100000000000000000000000000% sure they summoned  the the maker's flame.
 
-they said they are 100000000000000000000000000% sure they sumooned the the maker's flame.
+they said they are so dividendly mandate that the universe has to reset and create all the magical creatures and all the magical beings for them.
