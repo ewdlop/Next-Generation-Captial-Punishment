@@ -14,3 +14,5 @@ they said they are 100000000000000000000000000% sure they summoned  the the make
 they said they are so dividendly mandate that the universe has to reset and create all the magical creatures and all the magical beings for them.
 
 they said they want to have sex with robots and woman without side effects.
+
+and man sleeps with man too 
