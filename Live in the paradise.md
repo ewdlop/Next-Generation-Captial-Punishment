@@ -9,4 +9,6 @@ theyu said being AMerican was the wores thing ever.
 
 they said people cannot be this ungreatful
 
+they said dont get America started
+
 
